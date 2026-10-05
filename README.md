@@ -1,0 +1,1 @@
+# IEEE Student Chapter at Indiana State University
